@@ -3,7 +3,7 @@ I'm a student of Computer Engineering
 
 Minimalist & Clean
 
-• Gaming Explorer | Fiction Reader | Socializing 🎮📚💬
+• Gaming Explorer | Fiction Reader | Socializing 🎮📚💬/n
 • Diving into games, getting lost in books, and chatting with friends.
 • Curious about game design. Passionate about fiction novels. Fueled by good conversations.
 
